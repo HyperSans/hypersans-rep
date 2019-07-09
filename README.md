@@ -1,2 +1,5 @@
 # hypersans-rep
-it's optional so nope, no description.
+
+pls do not use my stuff on ur name
+i do not like that and its illegal
+so dont do it ok
